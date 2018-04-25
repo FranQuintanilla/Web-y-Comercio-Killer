@@ -1,2 +1,3 @@
 # Web-y-Comercio-Killer
-jkehbvkje rj1n
+ahora no hay examen 
+pero el primer viernes de mayo si 
